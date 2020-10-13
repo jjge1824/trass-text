@@ -1,4 +1,8 @@
 # trass-text
 Traspassing text
 
-En lo más simple abunda lo mejor de la vida. Llena tu alacena de productos esenciales del campo y cámbiate a la biodieta de Milpa Oaxaca. Encuentra los básicos para llevar a tu alimentación abundancia de nutrientes, sabores, creatividad y elabora bases para tus platillos, o experimenta con nuevas recetas.
+Harinas de maíces nativos y nixtamalizados criollos, blanco, rojo, negro y amarillo
+Elabora masa para hacer tus propias tortillas, tlacoyos, sopes, etc. con nuestros maíces  nativos y criollos, provenientes de los pueblos abuelos de Oaxaca.
+
+Harinas de frijol rojo y negro
+Basta con rehidratar, agregar un poco de aceite y sal para preparar frijoles. Su apariencia es similar a los  enlatados o de bolsa, pero son 100% orgánicos y naturales. 
