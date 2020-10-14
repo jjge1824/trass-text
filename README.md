@@ -1,101 +1,28 @@
 # trass-text
 Traspassing text
 
-Preparaciones básicas
-– Harina de  garbanzo
-– Harina de frijol negro o rojo
-– Salsas en polvo
-– Harina de maíz amarillo
-– Harina de maiz vetalobo
+Charales en salsa verde con nopales y papas 
 
-Harina de garbanzo
-3 porciones
+Ingredientes:
+2 papas
+5 nopales 
+250g de tomate verde
+1/4 de cebolla
+2 dientes de ajo
+3 chiles serranos 
+100g de charales de Puerto Ángel, Milpa Oaxaca
+Harina de frijol negro de San Miguel Tiltepec, Milpa Oaxaca
 
-Ingredientes
-100 gramos de harina (7 cucharadas de harina)
-350 ml de agua o 1 2/5 tz de agua
-1 cucharada de aceite
-Sal al gusto
+Preparación:
+1.	Pela las papas y ponlas a cocer en una cacerola con agua (pueden quedar un poco duras, pues terminarán de cocerse en la salsa verde). Una vez cocidas partelas en cuadros medianos.
+2.	Pica los nopales en cuadritos y ponlos a cocer; puedes agregar un poco de bicarbonato para cortar la baba. 
+3.	En una sartén con aceite caliente vierte tus Charales de Puerto Ángel, Milpa Oaxaca y mueve constantemente hasta que estén fritos. Retira del fuego y pon a escurrir (ten cuidado de que no se quemen porque esto amarga el guisado).
+4.	Licua los tomates, ajos, cebolla y chiles con 1/2 taza de agua para obtener una salsa verde; puedes usar caldo de pollo en lugar de agua. 
+5.	Pon aceite en una cacerola y agrega un trozo de cebolla hasta que se acitrone, agrega la salsa verde.
+6.	Una vez que la salsa verde rompió en hervor, pon a fuego medio y agrega las papas, lo nopales y los charales; deja hervir de 5 a 10 minutos.
 
-Preparación
-1. Precalienta el aceite en una sartén a fuego medio.
-2. Diluye la harina en agua al tiempo; disuelve todos los grumos hasta formar una mezcla homogénea. 
-3. Vierte la mezcla en la sartén moviendo constantemente, a fuego medio, de 6 a 9 minutos.
-4. Al termino de la cocción sazona al gusto.
-
-Sugerencias de uso: sopas, caldos, hummus, pasta, o úsalo como espesante.
-
-Una vez abierto el empaque es recomendable mantenerlo en un lugar fresco, lejos del sol y en un recipiente con cierre hermético (bolsa tipo ziplock o frasco bien cerrado).
-
-
-
-Harina de frijol negro o rojo
-3 porciones
-
-Ingredientes
-100 gramos de harina (7 cucharadas de harina)
-350 ml de agua o 1 2/5 tz de agua
-1 cucharada de aceite
-Sal al gusto
-
-Preparación
-1. Precalienta el aceite en una sartén a fuego medio.
-2. Diluye la harina en agua al tiempo; disuelve todos los grumos hasta formar una mezcla homogénea. 
-3. Vierte la mezcla en la sartén moviendo constantemente, a fuego medio, de 6 a 9 minutos.
-4. Al termino de la cocción sazona al gusto.
-
-Sugerencias de uso: sopa, crema, caldos, complemento en antojitos, pasta, guarniciones.
-
-Una vez abierto el empaque es recomendable mantenerlo en un lugar fresco, lejos del sol y en un recipiente con cierre hermético (bolsa tipo ziplock o frasco bien cerrado).
-
-
-
-Salsas en polvo 
-(Chile chiltepe, chile tusta y chile costeño)
-
-Ingredientes
-50 gramos de salsa en polvo
-80 ml de agua (1/3 tz)
-Sal al gusto
-
-Preparación
-1. Destapa el frasco y remueve la salsa en polvo con una cuchara.
-2. Agrega poco a poco el agua o aceite hasta conseguir una mezcla homogénea. 
-3. Sazona con sal al gusto.
-
-Sugerencias de uso: Acompañamiento para platillos en general; se puede emplear en polvo para frutas o dulces o se puede preparar con base de agua o aceite para aderezar.
-Una vez preparada la salsa se recomienda refrigerar.
-Si no se ha preparado, la salsa debe guardarse en un lugar seco, lejos del sol y preferentemente a la sombra.
-
-
-
-Harina de maíz amarillo
-Para preparar 300g de masa
-
-Ingredientes
-150 gr de harina (10 cucharadas)
-160 ml de agua (2/3 taza)
-
-Preparación
-1. Coloca la harina en un tazón.
-2. Comienza vertiendo poco a poco el agua y ve incorporándola con la harina.
-3. Asegúrate de que la mezcla no tenga grumos.
-4. Amasa hasta conseguir una consistencia con alta humedad, maleable, adhesiva y cohesiva.
-
-Sugerencias de uso: Sopes, tlacoyos,  atoles, tamales o usar como espesante.
-
-Una vez abierto el empaque es recomendable mantenerlo en un lugar fresco, lejos del sol y en un recipiente con cierre hermético (bolsa tipo ziplock o frasco bien cerrado).
-Nota: Esta masa no sirve para la elaboración de tortillas; al ser un grano muy grueso la harina no puede adquirir una textura fina que es la necesaria para la elaboración de este alimento que es delgado.
-
-
-
-Harina de maíz velatobo
-Para preparar 300g de masa
-
-Ingredientes
-150 gr de harina (10 cucharadas)
-150 ml de agua (3/5 taza)
-
-Sugerencias de uso: Tortillas, sopes, tlacoyos, atoles, tamales, tostadas, etc., o usar como espesante.
-
-Una vez abierto el empaque es recomendable mantenerlo en un lugar fresco, lejos del sol y en un recipiente con cierre hermético (bolsa tipo ziplock o frasco bien cerrado).
+Sirve con frijoles refritos de San Miguel Tiltepec, Milpa Oaxaca:
+1.	En un recipiente mezcla 7 cucharadas de harina de frijol con 1 1/2 tazas de agua hasta obtener una mezcla homogénea. 
+2.	Calienta 1 cucharada de aceite en un sartén y agrega la mezcla.
+3.	Mueve constantemente a fuego medio hasta obtener la consistencia deseada.
+4.	Sazona al gusto (puedes usar, sal y/o ajo).
